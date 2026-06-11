@@ -1,4 +1,4 @@
-## oi daily 💙
+## oi amigos💙
 
 
 - 🏫 sou estudante 
